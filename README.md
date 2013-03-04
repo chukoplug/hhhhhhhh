@@ -1,2 +1,2 @@
-esto no lo entiende si su €~¬#@#|!% madre!!
+esto no lo entiende ni su €~¬#@#|!% madre!!
 ========
